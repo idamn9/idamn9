@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @idamn9
-- 👀 I’m interested in football and everything tech
 - 🌱 I’m currently learning basics of coding
 - 💞️ I’m looking to collaborate on whatever
 - 📫 How to reach me .. don't
